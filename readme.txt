@@ -1,1 +1,1 @@
-my name is johnahan and im super gay
+i love danuja
